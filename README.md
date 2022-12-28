@@ -1,4 +1,4 @@
-- 👋😸 Hi, I’m @straygarfield
+- 👋😸 Hi, I’m @straygarfield / Fush
 - 👀 I’m interested in you
 - 🌱 I’m currently learning russian, guitar (for a few years)
 - 📫 How to reach me: discord - LuvCat#8662 or ig - fengkisses
